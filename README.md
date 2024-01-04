@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @krisisjustabitbetter
+- 👀 I’m interested in the OG Fortnite Community!
+- 🌱 I’m currently learning how to make a OG Fortnite Server!
+- 💞️ I’m looking to collaborate on that process.
+- 📫 Contact me on Discord: .caike.is.better.
